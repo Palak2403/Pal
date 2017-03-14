@@ -1,1 +1,2 @@
-# Pal
+# Pal 
+I am new to this open source thing..ecxited thoughhhh...
